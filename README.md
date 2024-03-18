@@ -3,5 +3,5 @@
 - bom, não sei mexer nessa plataforma ainda, mas estou buscando aprender mais sobre...​🌷​
 - e prometo me esforçar muito, e estou muito empolgada!!!​🥳​​🥳​
 - ela/dela​✨​
-- eu adoro cozinhar, cantar e eu amo cor azul! ​🧁​🎤​💙​
+- eu adoro cozinhar, cantar e eu amo a cor azul! ​🧁​🎤​💙​
 - é isso, beijos!​💋​✨​
